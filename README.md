@@ -29,29 +29,29 @@
 
 $$\color{brown}{-feel \ free \ to\ check\ out\ my\ other\ repos.}$$
 
-$$\color{red}{'hi \ ,im \ azurark, \ but \ you \ can \ call \ me \ ark \ or \ azu \ if \ its \easier}$$
-$$\color{red}{'my \ prefered \ pronouns \ are \ they/them \ but \ you \ can \ use \ he/him \ if \ you \ want}$$
-$$\color{red}{'PLEASE \ dni \ if \ you \ are \ -13 \ or \ +18 \ (alot \ to \ ask, \ i \ know.) \ friends \ not \ included!!}$$
-$$\color{red}{'active \ mostly \ on \ weekends. \ on \ weekdays \ i \ may \ be \ active \ 5-8PM \ (london \ time)}$$
-$$\color{red}{'w2i, \ if \ i \ dont \ respond \ then \ im \ probably \ offtab, \ busy, \ or \ asleep! \ im \ not \ ignoring \ you \ :c}$$
-$$\color{red}{'you \ can \ find \ me \ near \ docks \ or \ in \ the \ forsaken \ area}$$
-$$\color{red}{'my \ current \ interests \ are \ dod, \ folk \ of \ the \ air \ and \ stranger \ things.}$$
-$$\color{red}{'relatively \ dormant \ on \ forsaken, \ crk, \ and \ kaiju \ paradise.}$$
+$$\color{red}{'✷hi \ ,im \ azurark, \ but \ you \ can \ call \ me \ ark \ or \ azu \ if \ its \easier}$$
+$$\color{red}{'✷my \ prefered \ pronouns \ are \ they/them \ but \ you \ can \ use \ he/him \ if \ you \ want}$$
+$$\color{red}{'✷PLEASE \ dni \ if \ you \ are \ -13 \ or \ +18 \ (alot \ to \ ask, \ i \ know.) \ friends \ not \ included!!}$$
+$$\color{red}{'✷active \ mostly \ on \ weekends. \ on \ weekdays \ i \ may \ be \ active \ 5-8PM \ (london \ time)}$$
+$$\color{red}{'✷w2i, \ if \ i \ dont \ respond \ then \ im \ probably \ offtab, \ busy, \ or \ asleep! \ im \ not \ ignoring \ you \ :c}$$
+$$\color{red}{'✷you \ can \ find \ me \ near \ docks \ or \ in \ the \ forsaken \ area}$$
+$$\color{red}{'✷my \ current \ interests \ are \ dod, \ folk \ of \ the \ air \ and \ stranger \ things.}$$
+$$\color{red}{'✷relatively \ dormant \ on \ forsaken, \ crk, \ and \ kaiju \ paradise.}$$
 
 $$\color{grey}{/sillies/}$$
 
 
-$$\color{yellow}{schwarzwalder \ (choco \ werehound \ brute ) \ /CRK/}$$
-$$\color{teal}{figs \ /KP/}$$
-$$\color{purple}{tripods \ (my \ babies) \ /WOTW/}$$
-$$\color{brown}{bob \ newby \ /ST/}$$
-$$\color{darkblue}{azure \ defiant \ /PR/}$$
-$$\color{darkpurple}{night \ crawler \ /KP/}$$
-$$\color{darkgreen}{kumonga \ /SoG/}$$
-$$\color{orange}{catte \ (x \ shade \ so \ real) \ /KP/}$$
-$$\color{pink}{peko \ pekoyama \ /D2/}$$
-$$\color{lightgreen}{pursuer \ /DOD}$$
-$$\color{darkred}{the \ hollow \ /TT/ \ (ball \ knowledge \ required)}$$
+$$\color{yellow}{⚝schwarzwalder \ (choco \ werehound \ brute ) \ /CRK/}$$
+$$\color{teal}{⚝figs \ /KP/}$$
+$$\color{purple}{⚝tripods \ (my \ babies) \ /WOTW/}$$
+$$\color{brown}{⚝bob \ newby \ /ST/}$$
+$$\color{darkblue}{⚝azure \ defiant \ /PR/}$$
+$$\color{darkpurple}{⚝night \ crawler \ /KP/}$$
+$$\color{darkgreen}{⚝kumonga \ /SoG/}$$
+$$\color{orange}{⚝catte \ (x \ ⚝shade \ so \ real) \ /KP/}$$
+$$\color{pink}{⚝peko \ pekoyama \ /D2/}$$
+$$\color{lightgreen}{⚝pursuer \ /DOD}$$
+$$\color{darkred}{⚝the \ hollow \ /TT/ \ (ball \ knowledge \ required)}$$
 $$\color{darkorange}{adobo \ (TRUST) \ /pinoy/}$$
 
 
