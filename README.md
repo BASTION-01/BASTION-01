@@ -47,10 +47,10 @@ $$\color{teal}{⚝figs \ /KP/}$$
 $$\color{purple}{⚝tripods \ (my \ babies) \ /WOTW/}$$
 $$\color{brown}{⚝bob \ newby \ /ST/}$$
 $$\color{darkblue}{⚝azure \ defiant \ /PR/}$$
-$$\color{darkpurple}{⚝night \ crawler \ /KP/}$$
+$$\color{purple}{⚝night \ crawler \ /KP/}$$
 $$\color{darkgreen}{⚝kumonga \ /SoG/}$$
-$$\color{orange}{⚝catte \ (x \ ⚝shade \ so \ real) \ /KP/}$$
-$$\color{pink}{⚝peko \ pekoyama \ /D2/}$$
+$$\color{orange}{⚝catte \ (x \ shade \ so \ real) \ /KP/}$$
+$$\color{lightyellow}{⚝looey \  /DW/}$$
 $$\color{lightgreen}{⚝pursuer \ /DOD}$$
 $$\color{darkred}{⚝the \ hollow \ /TT/ \ (ball \ knowledge \ required)}$$
 $$\color{darkorange}{adobo \ (TRUST) \ /pinoy/}$$
