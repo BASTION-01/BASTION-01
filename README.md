@@ -1,4 +1,4 @@
-## ' Revenge is sweet, but ice cream is sweeter. '
+## '✶ Revenge is sweet, but ice cream is sweeter.✶ '
 ------------------------------------------------------------------
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/2ee11a63-a582-4c12-aff4-4fb5913eeac9" />
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/acee2413-bdf7-4dd2-95d2-353cb088f4fa" />
