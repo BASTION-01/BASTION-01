@@ -31,13 +31,17 @@ $$\color{brown}{-feel \ free \ to\ check\ out\ my\ other\ repos.}$$
 
 $$\color{red}{'✷hi \ ,im \ azurark, \ but \ you \ can \ call \ me \ ark \ or \ azu \ if \ its \ easier}$$
 $$\color{red}{'✷my \ prefered \ pronouns \ are \ they/them \ but \ you \ can \ use \ he/him \ if \ you \ want}$$
-$$\color{red}{'✷PLEASE \ dniuid \ if \ you \ are \ -13 \ or \ +18 \ (alot \ to \ ask, \ i \ know.) \ friends \ not \ included!!}$$
+$$\color{red}{'✷PLEASE \ dniuid \ if \ you \ are \ -10 \ or \ +18 \ (alot \ to \ ask, \ i \ know.) \ friends \ not \ included!!}$$
 $$\color{red}{'✷active \ mostly \ on \ weekends. \ on \ weekdays \ i \ may \ be \ active \ 5-8PM \ (london \ time)}$$
 $$\color{red}{'✷w2i, \ if \ i \ dont \ respond \ then \ im \ probably \ offtab, \ busy, \ or \ asleep! \ im \ not \ ignoring \ you \ :c}$$
 $$\color{red}{'✷you \ can \ find \ me \ near \ docks \ or \ in \ the \ forsaken \ area}$$
 $$\color{red}{'✷my \ current \ interests \ are \ dod, \ folk \ of \ the \ air \ and \ stranger \ things.}$$
 $$\color{red}{'✷relatively \ dormant \ on \ forsaken, \ crk, \ and \ kaiju \ paradise.}$$
 $$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomfortable}$$
+$$\color{red}{'✷DNI \ if \ you \ are \ a \ proshipper \ or \ a \ darkshipper. \ disgusting.}$$
+$$\color{red}{'✷INTERACT \ WITH \ CAUTION \ if \ you \ are \ 11-12.}$$
+$$\color{red}{'✷DNI \ if \ you \ are \ a \ zoophile \ or \ a \ map. \ block \ me.}$$
+$$\color{blue}{'✷hi \ cosimo, \ stop \ stalking \ my \ github \ page}$$
 
 $$\color{grey}{/sillies/}$$
 
