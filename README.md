@@ -50,7 +50,7 @@ $$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomforta
 $$\color{red}{'✷DNI \ if \ you \ are \ a \ proshipper \ or \ a \ darkshipper. \ disgusting.}$$
 $$\color{red}{'✷INTERACT \ WITH \ CAUTION \ if \ you \ are \ 11-12.}$$
 $$\color{red}{'✷DNI \ if \ you \ are \ a \ zoophile \ or \ a \ map. \ block \ me.}$$
-$$\color{blue}{'✷hi \ cosimo, \ stop \ stalking \ my \ github \ page}$$
+$$\color{blue}{'✷hi \ simon, \ stop \ stalking \ my \ github \ page}$$
 
 $$\color{grey}{/sillies/}$$
 
