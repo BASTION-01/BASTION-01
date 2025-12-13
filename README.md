@@ -40,7 +40,8 @@ $$\color{brown}{-feel \ free \ to\ check\ out\ my\ other\ repos.}$$
 
 $$\color{red}{'✷hi \ ,im \ azurark, \ but \ you \ can \ call \ me \ ark \ or \ azu \ if \ its \ easier}$$
 $$\color{red}{'✷my \ prefered \ pronouns \ are \ they/them \ but \ you \ can \ use \ he/him \ if \ you \ want}$$
-$$\color{red}{'✷STRICTLY \ DNI \ if \ you \ are \ -10 \ or \ +18 \ (alot \ to \ ask, \ i \ know.) \ does \ not \ apply \ if \ i \  \ knew \ you \ beforehand.}$$
+$$\color{red}{'✷STRICTLY \ DNI \ if \ you \ are \ -10 \ or \ +18 \ (alot \ to \ ask, \ i \ know.) \ does \ not \ apply \ if \ i \  \ knew \ you \ beforehand,}$$
+$$\color{red}{i \ tend \ to \ be \ rude \ around \ people \ who \ are \ not \ in \ my \ age \ group.}$$
 $$\color{red}{'✷active \ mostly \ on \ weekends. \ on \ weekdays \ i \ may \ be \ active \ 5-8PM \ (london \ time)}$$
 $$\color{red}{'✷w2i, \ if \ i \ dont \ respond \ then \ im \ probably \ offtab, \ busy, \ or \ asleep! \ im \ not \ ignoring \ you \ :c}$$
 $$\color{red}{'✷you \ can \ find \ me \ near \ docks \ or \ in \ the \ forsaken \ area}$$
