@@ -37,11 +37,6 @@ $$\color{darkred}{drink \ us \ and \ then \ they \ spit \ us \ out \ all \ over 
 <img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/57d8635a-5686-4e8d-8028-839cd339e9ae" />
 <img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/f5c319fe-d4c4-42f0-b90f-2179ac73abdc" />
 <img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/7e69daff-3b7d-479f-b28e-fb01d95a3bb2" />
-<img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/e95868ef-1359-41f0-bfd2-5cf4d15fd4dc" />
-<img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/f48a0dcd-3c8a-44af-9914-d48337d3b6cb" />
-<img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/9c90ee48-5195-4d46-9ce1-9b3f35de0d6b" />
-<img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/0a601ae0-5831-444c-84d8-8b539168d7f2" />
-<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/1e7c02e7-c4a3-4e1d-9f64-8e361f2fac38" />
 
 -----------------------------------------------------------------------------------------------------------------------------
 
