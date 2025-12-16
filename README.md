@@ -85,7 +85,7 @@ $$\color{brown}{⚝bob \ newby \ /ST/}$$
 $$\color{darkblue}{⚝azure \ defiant \ /PR/}$$
 $$\color{purple}{⚝night \ crawler \ /KP/}$$
 $$\color{darkgreen}{⚝kumonga \ /SoG/}$$
-$$\color{orange}{⚝catte \ (x \ shade \ so \ real) \ /KP/}$$
+$$\color{orange}{⚝catte \ /KP/}$$
 $$\color{lightyellow}{⚝looey \  /DW/}$$
 $$\color{lightgreen}{⚝pursuer \ /DOD}$$
 $$\color{darkred}{⚝the \ hollow \ /TT/ \ (ball \ knowledge \ required)}$$
