@@ -43,7 +43,7 @@ $$\color{darkred}{drink \ us \ and \ then \ they \ spit \ us \ out \ all \ over 
 $$\color{yellow}{-HEADS \ UP!! }$$
 ⚠️
 
--if you sit under or anywhere remotely close to the proship tree? *dni.*
+-if you want to sit under or anywhere remotely close to the proship tree? *dni.*
 -
 -i have blocked **EVERYONE** underneath it. i will not hesitate to block more.
 <img width="1920" height="50" alt="image" src="https://github.com/user-attachments/assets/d54f00d2-cb77-4067-88a1-1a02352d8a90" />
