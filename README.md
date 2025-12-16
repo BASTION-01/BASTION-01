@@ -37,7 +37,8 @@ $$\color{yellow}{-HEADS \ UP!! }$$
 ⚠️
 
 -if you sit under or anywhere remotely close to the proship tree? **dni.**
-
+-
+-i have blocked **EVERYONE** underneath it. i will not hesitate to block more.
 <img width="1920" height="50" alt="image" src="https://github.com/user-attachments/assets/d54f00d2-cb77-4067-88a1-1a02352d8a90" />
 
 
@@ -54,7 +55,8 @@ $$\color{red}{'✷relatively \ dormant \ on \ forsaken, \ crk, \ and \ kaiju \ p
 $$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomfortable}$$
 $$\color{red}{'✷INTERACT \ WITH \ CAUTION \ if \ you \ are \ 12.}$$
 $$\color{red}{'✷PLEASEPLEASEPLEASE \ DO \ NOT \ COPY \ MY \ SKINS}$$
-$$\color{red}{'✷DO \ NOT \ COVER \ ME! \ i \ like \ looking \ at \ myself..}$$
+$$\color{red}{'✷DO \ NOT \ COVER \ ME! \ it's \ not  \ like \ i \ have \ a \ discomfort \ or \ something,}$$
+$$\color{red}{i \ just \ like \ looking \ at \ myself..}$$
 $$\color{blue}{'✷hi \ simon, \ stop \ stalking \ my \ github \ page}$$
 
 $$\color{green}{' \ - \ DNI \ LIST}$$
