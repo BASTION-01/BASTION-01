@@ -62,6 +62,7 @@ $$\color{red}{'✷relatively \ dormant \ on \ forsaken, \ crk, \ and \ kaiju \ p
 $$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomfortable \ (rarely!)}$$
 $$\color{red}{'✷INTERACT \ WITH \ CAUTION \ if \ you \ are \ 12.}$$
 $$\color{red}{'✷PLEASEPLEASEPLEASE \ DO \ NOT \ COPY \ MY \ SKINS}$$
+$$\color{red}{'✷i \ like \ to \ convey \ my \ current \ feelings \ by \ changing \ my \ face, \ so \ expect \ me \ to \ do \ just \ that!}$$
 $$\color{red}{'✷DO \ NOT \ COVER \ ME! \ it's \ not  \ like \ i \ have \ a \ discomfort \ or \ something,}$$
 $$\color{red}{i \ just \ like \ looking \ at \ myself..}$$
 $$\color{blue}{'✷hi \ simon, \ stop \ stalking \ my \ github \ page}$$
