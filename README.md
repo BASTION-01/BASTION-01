@@ -106,5 +106,3 @@ $$\color{darkred}{⚝the \ hollow \ /TT/ \ (ball \ knowledge \ required)}$$
 
 
 
-![devesto-forsaken](https://github.com/user-attachments/assets/ff3d4190-8c88-48af-b7ac-c9942543340e)
-
