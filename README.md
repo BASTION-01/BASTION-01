@@ -61,6 +61,7 @@ $$\color{red}{'✷my \ current \ interests \ are \ dod, \ folk \ of \ the \ air 
 $$\color{red}{'✷relatively \ dormant \ on \ forsaken, \ crk, \ and \ kaiju \ paradise.}$$
 $$\color{red}{'✷i \ edit \ my \ readme \ often \ so \ expect \ things \ to \ change!}$$
 $$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomfortable \ (rarely!)}$$
+$$\color{red}{'✷HEAVY \ TOUCH \ COMFORT \ so \ im \ open \ to \ cuddles \ and \ kisses!}$$
 $$\color{red}{'✷INTERACT \ WITH \ CAUTION \ if \ you \ are \ 12.}$$
 $$\color{red}{'✷PLEASEPLEASEPLEASE \ DO \ NOT \ COPY \ MY \ SKINS}$$
 $$\color{red}{'✷i \ like \ to \ convey \ my \ current \ feelings \ by \ changing \ my \ face, \ so \ expect \ me \ to \ do \ just \ that!}$$
