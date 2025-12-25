@@ -37,6 +37,7 @@ $$\color{darkred}{-' For \ neither \ do \ men \ live \ nor \ die \ in \ vain.}$$
 <img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/57d8635a-5686-4e8d-8028-839cd339e9ae" />
 <img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/f5c319fe-d4c4-42f0-b90f-2179ac73abdc" />
 <img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/7e69daff-3b7d-479f-b28e-fb01d95a3bb2" />
+<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/143fd05f-a80a-47f6-8f36-dca1760ed07e" />
 
 -----------------------------------------------------------------------------------------------------------------------------
 
