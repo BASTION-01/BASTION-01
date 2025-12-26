@@ -65,7 +65,7 @@ $$\color{red}{'✷you \ can \ find \ me \ near \ docks \ or \ in \ the \ forsake
 $$\color{red}{'✷my \ current \ interests \ are \ dod, \ folk \ of \ the \ air, \ kaiju \ paradise \ and \ stranger \ things.}$$
 $$\color{red}{'✷relatively \ dormant \ on \ forsaken, \ crk \ and \ war \ of \ the \ worlds.}$$
 $$\color{red}{'✷VERY \ VERY \ DORMANT \ on \ pixonic's \ war \ robots}$$
-$$\color{red}{'✷i \ edit \ my \ readme \ often \ so \ expect \ things \ to \ change!}$$
+$$\color{red}{'✷i \ edit \ my \ readme \ A \ LOT \ so \ expect \ things \ to \ change!}$$
 $$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomfortable \ (rarely!) \ or \ when \ im \ with \ friends}$$
 $$\color{red}{'✷HEAVY \ TOUCH \ COMFORT \ so \ im \ open \ to \ cuddles!}$$
 $$\color{red}{'✷INTERACT \ WITH \ CAUTION \ if \ you \ are \ 12.}$$
