@@ -66,8 +66,8 @@ $$\color{red}{'✷my \ current \ interests \ are \ dod, \ folk \ of \ the \ air,
 $$\color{red}{'✷relatively \ dormant \ on \ forsaken, \ crk \ and \ war \ of \ the \ worlds.}$$
 $$\color{red}{'✷VERY \ VERY \ DORMANT \ on \ pixonic's \ war \ robots}$$
 $$\color{red}{'✷i \ edit \ my \ readme \ often \ so \ expect \ things \ to \ change!}$$
-$$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomfortable \ (rarely!)}$$
-$$\color{red}{'✷HEAVY \ TOUCH \ COMFORT \ so \ im \ open \ to \ cuddles \ and \ kisses!}$$
+$$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomfortable \ (rarely!) \ or \ when \ im \ with \ friends}$$
+$$\color{red}{'✷HEAVY \ TOUCH \ COMFORT \ so \ im \ open \ to \ cuddles!}$$
 $$\color{red}{'✷INTERACT \ WITH \ CAUTION \ if \ you \ are \ 12.}$$
 $$\color{red}{'✷i \ do \ NOT \ tolerate \ discrimination \ or \ criticism \ of \ my \ ocs. \ if \ you \ are \ joking, \ PLEASE \ use \ tonetags..\ it \ helps.}$$
 $$\color{red}{'✷PLEASEPLEASEPLEASE \ DO \ NOT \ COPY \ MY \ SKINS}$$
