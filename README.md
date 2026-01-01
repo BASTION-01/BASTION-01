@@ -53,8 +53,8 @@ $$\color{gray}{' \ ✦ \ - \ dont \ fucking \ touch \ me \ if \ you \ like \ flu
 <img width="1030" height="20" alt="image" src="https://github.com/user-attachments/assets/b1ce7a23-4f91-4527-bb72-9beff4899629" />
 
 
-$$\color{darkred}{' \ {} \ {} \ INTERACT \ WITH \ VERY \ EXTREME \ CAUTION \ {} \ {} \ '}$$
-$$\color{darkred}{' \ [] \ - \ iwvec \ if \ you're \ in \ THESE  \ fandoms \ !!.,}$$
+$$\color{darkred}{' \ [] \ [] \ INTERACT \ WITH \ VERY \ EXTREME \ CAUTION \ [] \ [] \ '}$$
+$$\color{darkred}{' \ [] \ - \ iwvec \ if \ you're \ in \ THESE  \ fandoms \ !!., \ - \ [] \ '}$$
 $$\color{gray}{' \ ✦ \ - \ hazbin \ hotel \ OR  \ helluva \ boss \ .,,}$$
 $$\color{gray}{' \ ✦ \ - \ sprunki.}$$
 $$\color{gray}{' \ ✦ \ - \ tcooal.}$$
