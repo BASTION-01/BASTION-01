@@ -15,6 +15,8 @@
 
 
 $$\color{darkred}{hello, \ hi. \ big \ change \ from \ my \ old \ readme, \ right? \ lets \ get \ to \ the \ point \ already...}$$
+
+
 $$\color{brown}{' \ ✦ \ - \ i'm \ azurark! \ you \ can \ call \ me \ ark \ or \ azu \ if \ easier}$$
 $$\color{brown}{' \ ✦ \ - \ my \ \ prefered \ pronouns \ are \ they \ them \ but \ use \ male \ pronouns \ if \ you \ want}$$
 $$\color{brown}{' \ ✦ \ - \ active \ mostly \ on \ weekends. \ on \ weekdays, \ i \ may \ be \ on \ 5pm \ through \ 9pm.\}$$
