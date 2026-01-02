@@ -21,7 +21,7 @@ $$\color{brown}{' \ ✦ \ - \ im \ azurark! \ you \ can \ call \ me \ ark \ or \
 $$\color{brown}{' \ ✦ \ - \ my \ \ prefered \ pronouns \ are \ they \ them \ but \ use \ male \ pronouns \ if \ you \ want}$$
 $$\color{brown}{' \ ✦ \ - \ active \ mostly \ on \ weekends. \ on \ weekdays, \ i \ may \ be \ on \ 5pm \ through \ 9pm.\}$$
 $$\color{brown}{' \ ✦ \ - \ W2I \ always! \ if \ i \ dont \ respond \ then \ im \ either \ offtab \ busy \ or \ just \ ignoring \ youse \ (ONLY \ FOR \ GOOD \ REASONS)}$$
-$$\color{brown}{' \ ✦ \ - \ i \ commonly \ hang \ out \ at \ docks or near docks}$$
+$$\color{brown}{' \ ✦ \ - \ i \ commonly \ hang \ out \ at \ docks \ or \ near \ docks}$$
 $$\color{brown}{' \ ✦ \ - \ i \ have \ a \ liking \ for \ roleplays, \ so \ expect \ me \ to \ be \ in \ infections, \ labs, \ the \ bunch.}$$
 $$\color{brown}{' \ ✦ \ - \ i \ am \ currently \ interested \ in \ kaiju \ paradise, \ young \ sheldon \ and \ stranger \ things.}$$
 $$\color{brown}{' \ ✦ \ - \ relatively \ dormant \ on \ wotw, \ dod, \ crk \ and \ shin \ godzilla}$$
