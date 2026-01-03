@@ -55,7 +55,8 @@ $$\color{gray}{' \ ✦ \ - \ dont \ fucking \ touch \ me \ if \ you \ like \ flu
 
 
 $$\color{darkred}{' \ [] \ [] \ INTERACT \ WITH \ VERY \ EXTREME \ CAUTION \ [] \ [] \ '}$$
-$$\color{darkred}{' \ [] \ - \ iwvec \ if \ you're \ in \ THESE  \ fandoms \ !!., \ - \ [] \ '}$$
+$$\color{darkred}{' \ [] \ - \ interact \ with \ VERY \ EXTREME \ CAUTION \ if \ you're \ in \ THESE  \ fandoms \ !!., \ - \ [] \ '}$$
+$$\color{brown}{: \ = \ ' \ (this \ iwvec \ fandom \ list \ does \ not \ apply \ if \ you \ are \ a \ friend!) \ ' \ = \ :}$$
 $$\color{gray}{' \ ✦ \ - \ hazbin \ hotel \ OR  \ helluva \ boss \ .,,}$$
 $$\color{gray}{' \ ✦ \ - \ sprunki.}$$
 $$\color{gray}{' \ ✦ \ - \ tcooal.}$$
