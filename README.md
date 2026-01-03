@@ -43,7 +43,7 @@ $$\color{darkred}{' \ [] \ [] \ DNI \ [] \ [] \ ' }$$
 
 $$\color{gray}{' \ ✦ \ - \ strictly \ dni \ if \ you \ are \ 12 \ and \ under \ OR  \ 18 \ and \ over.}$$
 $$\color{gray}{' \ ✦ \ - \ DNI \ if \ you \ are \ either \ or \ BOTH: \ a \ proshipper \ and/or \ darkshipper. \ i \ block \ EVERYONE \ under \ the \ protree.}$$
-$$\color{gray}{' \ ✦ \ - \ DNI \ DNI \ IF \ YOU \ ARE \ A \ HOMOPHOBE, \ TRANSPHOBE, \ ALBEIST, \ NEO-NAZI, \ RACIST, \ ZOO \ OR \ MAP.}$$
+$$\color{gray}{' \ ✦ \ - \ DNI \ DNI \ IF \ YOU \ ARE \ A \ HOMOPHOBE, \ TRANSPHOBE, \ ABLEIST, \ NEO-NAZI, \ RACIST, \ ZOO \ OR \ MAP.}$$
 $$\color{gray}{' \ ✦ \ - \ dni \ if \ you \ are \ a \ trump \ supporter/justifier \ ... \ ., \ need \ i \ say \ more?}$$
 $$\color{gray}{' \ ✦ \ - \ dni \ if you \ talk \ SO \ EXCESSIVELY \ MUCH \ about \ your \ personal \ life. \ dont \ flex \ either, \ fuck \ you}$$
 $$\color{gray}{' \ ✦ \ - \ dni \ if \ youve \ got \ a \ short \ temper, \ sorry.,}$$
