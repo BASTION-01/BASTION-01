@@ -3,11 +3,11 @@
 
 ![Custom Badge](https://img.shields.io/badge/cake_hound_subscribers!-63,354-red)
 
-*PREVIOUSLYY.. ' ilovepizzaandcola ' !!*
- ps. the badge above is ACTIVELY DECREASING
+ps, the badge above is ACTIVELY DECREASING!
+
 -----------------------------
 
-
+*PREVIOUSLYY.. ' ilovepizzaandcola ' !!*
 
 ![13356412_96372](https://github.com/user-attachments/assets/e9045cce-7a96-4da9-bdc9-7b15510f9cca)
 
