@@ -1,10 +1,10 @@
 ## '✶ I'll still love you. Even if you hate me, I love you! ✶ '
 ------------------------------------------------------------------
 
-![Custom Badge](https://img.shields.io/badge/cake_hound_subscribers!-63,374-red)
+![Custom Badge](https://img.shields.io/badge/cake_hound_subscribers!-63,354-red)
 
 *PREVIOUSLYY.. ' ilovepizzaandcola ' !!*
- 
+ ps. the badge above is ACTIVELY DECREASING
 -----------------------------
 
 
