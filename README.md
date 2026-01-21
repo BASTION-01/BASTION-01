@@ -14,7 +14,7 @@ ps, the badge above is ACTIVELY DECREASING!
 <img width="1030" height="20" alt="image" src="https://github.com/user-attachments/assets/b1ce7a23-4f91-4527-bb72-9beff4899629" />
 
 
-$$\color{darkred}{hello, \ hi. \ big \ change \ from \ my \ old \ readme, \ right? \ lets \ get \ to \ the \ point \ already...}$$
+$$\color{darkred}{happy \ valentines \ , \ idiots!!!}$$
 
 
 $$\color{brown}{' \ ✦ \ - \ im \ azurark! \ you \ can \ call \ me \ ark \ or \ tnt \ if \ easier, \ i \ often \ get \ my \ name \ spelt \ wrong..}$$
