@@ -1,7 +1,7 @@
 ## '✶ I'll still love you. Even if you hate me, I love you! ✶ '
 ------------------------------------------------------------------
 
-![Custom Badge](https://img.shields.io/badge/cake_hound_subscribers!-63,333-red)
+![Custom Badge](https://img.shields.io/badge/cake_hound_subscribers!-63,305-red)
 
 ps, the badge above is ACTIVELY DECREASING!
 
