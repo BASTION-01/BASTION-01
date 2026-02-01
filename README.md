@@ -1,7 +1,7 @@
 ## ' ✶ You want some peace? Then come on down and make me! ✶ '
 ------------------------------------------------------------------
 
-![Custom Badge](https://img.shields.io/badge/cake_hound_subscribers!-63.2K-black)
+![Custom Badge](https://img.shields.io/badge/cake_hound_subscribers!-63.2K-green)
 
 ps, the badge above is ACTIVELY DECREASING!
 
