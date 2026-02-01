@@ -5,6 +5,9 @@
 
 ps, the badge above is ACTIVELY DECREASING!
 
+![centaurworld-animation](https://github.com/user-attachments/assets/34e023df-2021-4fdc-a3c8-b13d433d6c72)
+
+
 -----------------------------
 
 *PREVIOUSLYY.. ' ilovepizzaandcola ' !!*
