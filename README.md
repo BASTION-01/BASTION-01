@@ -36,6 +36,7 @@ $$\color{gray}{' \ ✦ \ - \ i \ tend \ to \ forget \ people \ i \ have \ friend
 $$\color{gray}{' \ ✦ \ - \ please \ DONT \ cover \ me, \ it \ isnt \ like \ i \ have \ a \ trigger \ or \ discomfort,}$$
 $$\color{gray}{i \ just,. \ REALLY \ LIKE \ looking \ at \ myself \ and \ my \ pony}$$
 $$\color{gray}{' \ ✦ \ - \ please \ do \ note \ that \ i \ am \ not \ a \ fictionkin \ of \ schwarzwalder, \ hes \ just \ my \ favourite \ character.}$$
+$$\color{gray}{' \ ✦ \ - \ ( \ im \ not \ a \ fictkin \ of \ the \ nowhere \ king \ either \ ! \ )}$$
 $$\color{gray}{' \ ✦ \ - \ i \ do \ NOT \ tolerate \ criticism \ or \ discrimination \ of \ my \ ponies \ IN \ ANY \ WAY.}$$
 $$\color{gray}{use \ tonetags \ if \ joking, \ please.,. \ (WOULD \ STILL \ PREFER \ YOU \ DONT \ JOKE \ AROUND.)}$$
 $$\color{gray}{' \ ✦ \ - \ ASK \ FOR \ INSPIRATION \ if \ willing \ to \ 'borrow' \ details \ from \ my \ ocs. \ dont \ steal., \ be \ decent.}$$
