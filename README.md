@@ -47,7 +47,7 @@ $$\color{gray}{' \ ✦ \ - \ ASK \ FOR \ INSPIRATION \ if \ willing \ to \ 'borr
 
 
 
-$$\color{white}{' \ [] \ [] \ DNI \ [] \ [] \ ' }$$
+$$\color{darkgray}{' \ [] \ [] \ DNI \ [] \ [] \ ' }$$
 
 
 $$\color{gray}{' \ ✦ \ - \ strictly \ dni \ if \ you \ are \ 12 \ and \ under \ OR  \ 18 \ and \ over.}$$
@@ -63,9 +63,9 @@ $$\color{gray}{' \ ✦ \ - \ dont \ fucking \ touch \ me \ if \ you \ like \ flu
 <img src="https://github.com/user-attachments/assets/18d8b524-433e-446f-981d-0b146085163d" width="1100">
 
 
-$$\color{white}{' \ [] \ [] \ INTERACT \ WITH \ VERY \ EXTREME \ CAUTION \ [] \ [] \ '}$$
-$$\color{white}{' \ [] \ - \ interact \ with \ VERY \ EXTREME \ CAUTION \ if \ you're \ in \ THESE  \ fandoms \ !!., \ - \ [] \ '}$$
-$$\color{white}{: \ = \ ' \ (this \ iwvec \ fandom \ list \ does \ not \ apply \ if \ you \ are \ a \ friend!) \ ' \ = \ :}$$
+$$\color{darkgray}{' \ [] \ [] \ INTERACT \ WITH \ VERY \ EXTREME \ CAUTION \ [] \ [] \ '}$$
+$$\color{darkgray}{' \ [] \ - \ interact \ with \ VERY \ EXTREME \ CAUTION \ if \ you're \ in \ THESE  \ fandoms \ !!., \ - \ [] \ '}$$
+$$\color{darkgray}{: \ = \ ' \ (this \ iwvec \ fandom \ list \ does \ not \ apply \ if \ you \ are \ a \ friend!) \ ' \ = \ :}$$
 $$\color{gray}{' \ ✦ \ - \ hazbin \ hotel \ OR  \ helluva \ boss \ .,,}$$
 $$\color{gray}{' \ ✦ \ - \ sprunki.}$$
 $$\color{gray}{' \ ✦ \ - \ tcooal.}$$
@@ -74,12 +74,14 @@ $$\color{gray}{' \ ✦ \ - \ beastars??}$$
 $$\color{gray}{' \ ✦ \ - \ fnaf}$$
 $$\color{gray}{' \ ✦ \ - \ beserk.}$$
 $$\color{gray}{' \ ✦ \ - \ tpot, \ bfdi, \ that \ stuff.}$$
-$$\color{green}{- \ ~ \ <> \ ~ \ -}$$
+$$\color{darkgray}{- \ ~ \ <> \ ~ \ -}$$
 $$\color{gray}{' \ ✦ \ - \ iwvec \ if \ you \ find \ digital \ humour \ funny..}$$
 $$\color{gray}{' \ ✦ \ - \ people \ who \ like \ terrible \ mouse \ or \ all \ of \ those \ horrifying \ gory \ animal \ animations..}$$
 $$\color{gray}{' \ ✦ \ - \ raid \ joiners}$$
 $$\color{gray}{' \ ✦ \ - \ healing \ proshippers}$$
 
 <img src="https://github.com/user-attachments/assets/18d8b524-433e-446f-981d-0b146085163d" width="1100">
+
+$$\color{darkgreen}{ ✦ \ ° \ HARK! \ THE \ HERALD \ ANGELS \ SING! \ °  \ ✦}$$
 
 
