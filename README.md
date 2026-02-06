@@ -24,11 +24,12 @@ $$\color{green}{happy \ valentines \ , \ idiots!!!}$$
 
 $$\color{gray}{' \ ✦ \ - \ im \ azurark! \ you \ can \ call \ me \ ark \ or \ tnt \ if \ easier, \ i \ often \ get \ my \ name \ spelt \ wrong..}$$
 $$\color{gray}{' \ ✦ \ - \ my \ \ prefered \ pronouns \ are \ they \ them \ but \ use \ male \ pronouns \ if \ you \ want}$$
+$$\color{gray}{' \ ✦ \ - \ i \ am \ a \ minor. \ do \ not \ interact \ if \ you \ are \ not \ in \ my \ age \ group \ [ \ as \ specified \ in \ the \ dni \ list \ ]}$$
 $$\color{gray}{' \ ✦ \ - \ active \ mostly \ on \ weekends. \ on \ weekdays, \ i \ may \ be \ on \ 5pm \ through \ 9pm.\}$$
 $$\color{gray}{' \ ✦ \ - \ W2I \ always! \ if \ i \ dont \ respond \ then \ im \ either \ offtab, \ busy \ or \ not \ not \ paying \ so \ much \ attention..}$$
 $$\color{gray}{' \ ✦ \ - \ i \ commonly \ hang \ out \ at \ docks \ or \ near \ docks \ in \ the \ safe \ server}$$
 $$\color{gray}{' \ ✦ \ - \ i \ have \ a \ liking \ for \ roleplays, \ so \ expect \ me \ to \ be \ in \ infections, \ labs, \ the \ bunch.}$$
-$$\color{gray}{' \ ✦ \ - \ i \ am \ currently \ interested \ in \ kaiju \ paradise, \ young \ sheldon \ and \ stranger \ things.}$$
+$$\color{gray}{' \ ✦ \ - \ i \ am \ currently \ interested \ in \ ... \ nothing,  \ really. \ . \ yeah.}$$
 $$\color{gray}{' \ ✦ \ - \ relatively \ dormant \ on \ wotw, \ dod, \ crk \ and \ shin \ godzilla}$$
 $$\color{gray}{' \ ✦ \ - \ i \ have \ a \ VERY \ HEAVY \ touch \ comfort, \ so \ im \ open \ to \ cuddles !}$$
 $$\color{gray}{' \ ✦ \ - \ i \ like \ to \ convey \ current \ emotions \ by \ changing \ my \ pony's \ expression}$$
