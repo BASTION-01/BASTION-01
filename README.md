@@ -1,7 +1,7 @@
 ## ' ✶ will this end in tragedy? well i dont know but  guess we'll see! ✶ '
 ------------------------------------------------------------------
 
-![Custom Badge](https://img.shields.io/badge/cake_hound_subscribers-63.2K-green)
+![Custom Badge](https://img.shields.io/badge/youtube_cake_hound_subscribers-63.2K-green)
 
 ps, the badge above is ACTIVELY DECREASING!
 
