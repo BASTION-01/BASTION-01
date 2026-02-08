@@ -17,7 +17,8 @@ ps, the badge above is ACTIVELY DECREASING!
 
 <img src="https://github.com/user-attachments/assets/18d8b524-433e-446f-981d-0b146085163d" width="1100">
 
-![pony-town-stupid elk --boop-sit-blinking-padded-toy362-4x (1)](https://github.com/user-attachments/assets/ba9c36b3-975e-480a-8da3-b4046b44da58)
+![pony-town-stupid elk --boop-sit-blinking-padded-toy362-4x (2)](https://github.com/user-attachments/assets/b8e9837d-8f50-4ac6-8410-700322c9fa62)
+
 
 
 $$\color{green}{happy \ valentines \ , \ idiots!!!}$$
