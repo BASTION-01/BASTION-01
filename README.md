@@ -30,7 +30,8 @@ $$\color{gray}{' \ ✦ \ - \ active \ mostly \ on \ weekends. \ on \ weekdays, \
 $$\color{gray}{' \ ✦ \ - \ W2I \ always! \ if \ i \ dont \ respond \ then \ im \ either \ offtab, \ busy \ or \ not \ not \ paying \ so \ much \ attention..}$$
 $$\color{gray}{' \ ✦ \ - \ i \ commonly \ hang \ out \ at \ docks \ or \ near \ docks \ in \ the \ safe \ server}$$
 $$\color{gray}{' \ ✦ \ - \ i \ have \ a \ liking \ for \ roleplays, \ so \ expect \ me \ to \ be \ in \ infections, \ labs, \ the \ bunch.}$$
-$$\color{gray}{' \ ✦ \ - \ i \ am \ currently \ interested \ in \ ... \ nothing,  \ really. \ . \ yeah.}$$
+$$\color{gray}{' \ ✦ \ - \ i \ am \ currently \ interested \ in \ centaurworld \ and \ the \ folk \ of \ the \ air.}$$
+$$\color{gray}{' \ ✦ \ - \ i \ edit \ my \ repository \ often \ so \ expect \ small \ changes \ or \ even \ a \ complete \ makeover \ of \ my \ page}$$
 $$\color{gray}{' \ ✦ \ - \ relatively \ dormant \ on \ wotw, \ dod, \ crk \ and \ shin \ godzilla}$$
 $$\color{gray}{' \ ✦ \ - \ i \ have \ a \ VERY \ HEAVY \ touch \ comfort, \ so \ im \ open \ to \ cuddles !}$$
 $$\color{gray}{' \ ✦ \ - \ i \ like \ to \ convey \ current \ emotions \ by \ changing \ my \ pony's \ expression}$$
