@@ -78,7 +78,8 @@ $$\color{gray}{' \ ✦ \ - \ beastars??}$$
 $$\color{gray}{' \ ✦ \ - \ fnaf}$$
 $$\color{gray}{' \ ✦ \ - \ beserk.}$$
 $$\color{gray}{' \ ✦ \ - \ tpot, \ bfdi, \ that \ stuff.}$$
-$$\color{darkgray}{- \ ~ \ <> \ ~ \ -}$$
+$$\color{darkgray}{( \ just \ dont \ talk \ about \ these \ fandoms \ infront \ of \ me \ and \ youll \ be \ fine \ i \ promise.)}$$
+$$\color{darkgray}{ - \ [][][][][][][][][][][][][][][] \ -}$$
 $$\color{gray}{' \ ✦ \ - \ iwvec \ if \ you \ find \ digital \ humour \ funny..}$$
 $$\color{gray}{' \ ✦ \ - \ people \ who \ like \ terrible \ mouse \ or \ all \ of \ those \ horrifying \ gory \ animal \ animations..}$$
 $$\color{gray}{' \ ✦ \ - \ raid \ joiners}$$
