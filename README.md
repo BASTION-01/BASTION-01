@@ -155,6 +155,7 @@ $$\color{darkgreen}{ ✦ \ ° \ HARK! \ THE \ HERALD \ ANGELS \ SING! \ °  \ �
 ![tumblr_5216ce1597be2f43621015c13a54347d_428ec0d4_100](https://github.com/user-attachments/assets/f65c0b59-5bce-4732-8943-4fa123eaad97)
 ![65](https://github.com/user-attachments/assets/93ed00ea-3c52-440c-8595-0733d274fa60)
 <img width="99" height="56" alt="STAMPPJawz4" src="https://github.com/user-attachments/assets/0f5c4f79-f67f-4621-bd25-aa51c0291026" />
+![tumblr_2077c62ccc915571438d347618ac01e0_660e9e71_100](https://github.com/user-attachments/assets/079f65b0-3711-4a1d-876e-6bad8c30016d)
 
 
 
