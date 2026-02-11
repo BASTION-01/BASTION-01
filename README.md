@@ -3,7 +3,6 @@
 
 ![Custom Badge](https://img.shields.io/badge/youtube_cake_hound_subscribers-63.2K-darkgreen)
 
-scroll to the bottom of my readme to find a stamp library
 
 ![centaurworld-animation](https://github.com/user-attachments/assets/34e023df-2021-4fdc-a3c8-b13d433d6c72)
 
@@ -142,7 +141,20 @@ $$\color{darkgreen}{ ✦ \ ° \ HARK! \ THE \ HERALD \ ANGELS \ SING! \ °  \ �
 <img width="99" height="56" alt="tumblr_ecc7a24943bb3b6c40345229f201da62_e75ae400_100" src="https://github.com/user-attachments/assets/ad6d8f46-e8a4-4bfd-80d5-5156445eb4e4" />
 ![cfbca487](https://github.com/user-attachments/assets/3d04e0dd-a450-488e-8830-07864b49cb8a)
 ![d2nocg4-6e1b2c65-661c-4b2d-93e9-5993c6e16244](https://github.com/user-attachments/assets/89cea58b-72c9-4fd7-af29-90d6aeff3e39)
-
+![tumblr_8f82dce0d2aab73679dcf8de15a74dae_af78874e_250](https://github.com/user-attachments/assets/3109b6c1-bba5-4370-ab96-ba218ca7d206)
+<img width="100" height="58" alt="tumblr_0bcf48a5de71f938dd037efd679ef120_0f858176_100" src="https://github.com/user-attachments/assets/069f332e-24d6-4f18-ad4f-7d6218c20633" />
+<img width="99" height="56" alt="tumblr_03a268ef5a8aafc75ee6ce99c75aa7bb_72b21b5a_100" src="https://github.com/user-attachments/assets/d0c460b1-1d3f-4cb6-8d6a-4c8ab82ce53f" />
+![d9mat6h-d1f2b174-a400-495a-88c6-065dce5914c6](https://github.com/user-attachments/assets/56705133-69b1-4479-8bea-609991ce203c)
+![dah4ws9-928cd3fb-12c2-4e2f-8f61-3d5afc413f56](https://github.com/user-attachments/assets/a9420479-459b-4cc5-9319-2b9b4614de33)
+<img width="99" height="56" alt="minecraft2" src="https://github.com/user-attachments/assets/e0814631-510a-49d1-888f-f7500d31f959" />
+<img width="99" height="56" alt="minecraft3" src="https://github.com/user-attachments/assets/9e943d35-ae78-4417-a2e5-cda2e52b2ac6" />
+<img width="99" height="56" alt="minecraft4" src="https://github.com/user-attachments/assets/4efbb641-e94e-49a1-9fca-dad3a777d8a8" />
+![tumblr_pbffcs5mpm1xz2nuuo1_250](https://github.com/user-attachments/assets/8e2cbb8d-71fc-4fb5-b675-f034cca83afa)
+<img width="99" height="55" alt="kriswhere" src="https://github.com/user-attachments/assets/3afad1b3-d0e8-49f0-91ce-c233cee347b8" />
+<img width="105" height="60" alt="78" src="https://github.com/user-attachments/assets/36adb4eb-6a5e-42ef-bca1-5f800f7e69cd" />
+![tumblr_5216ce1597be2f43621015c13a54347d_428ec0d4_100](https://github.com/user-attachments/assets/f65c0b59-5bce-4732-8943-4fa123eaad97)
+![65](https://github.com/user-attachments/assets/93ed00ea-3c52-440c-8595-0733d274fa60)
+<img width="99" height="56" alt="STAMPPJawz4" src="https://github.com/user-attachments/assets/0f5c4f79-f67f-4621-bd25-aa51c0291026" />
 
 
 
