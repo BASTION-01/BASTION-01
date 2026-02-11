@@ -90,4 +90,62 @@ $$\color{gray}{' \ ✦ \ - \ healing \ proshippers}$$
 
 $$\color{darkgreen}{ ✦ \ ° \ HARK! \ THE \ HERALD \ ANGELS \ SING! \ °  \ ✦}$$
 
+<details>
+  <summary>stamp library</summary>
+  
+![stress](https://github.com/user-attachments/assets/174a921a-589e-45e1-84b2-94c6835f460d)
+![jellies2](https://github.com/user-attachments/assets/af9927bd-6544-48a3-9433-49ed30f88292)
+![music](https://github.com/user-attachments/assets/123c4c34-dd8e-4926-a8c1-11012c8c8ad5)
+<img width="99" height="56" alt="ammo" src="https://github.com/user-attachments/assets/feec6e4d-4c1a-4dd1-829a-956b1e8d1d40" />
+![soda](https://github.com/user-attachments/assets/5c043955-9f9c-468e-a2a8-88dd03badc54)
+![chocolate](https://github.com/user-attachments/assets/89963817-f935-4725-9b41-7ac6015a61fb)
+<img width="99" height="56" alt="flytrap" src="https://github.com/user-attachments/assets/abc43718-967f-4139-8ffb-f798b772ad36" />
+![noise](https://github.com/user-attachments/assets/d1e3f32e-9584-4d4c-ae82-fd24a398437e)
+![glitter](https://github.com/user-attachments/assets/ef744878-cbff-417b-8433-f42f732949ca)
+<img width="99" height="56" alt="meta11" src="https://github.com/user-attachments/assets/68cb9c33-2375-4977-88b7-73d16f29bc06" />
+<img width="103" height="59" alt="dickhead" src="https://github.com/user-attachments/assets/30be4179-bcd1-4278-9a3f-59bc0b41782a" />
+![barbedwire](https://github.com/user-attachments/assets/48c7ac3c-e268-411f-a461-9bb6d476e894)
+<img width="99" height="55" alt="believe" src="https://github.com/user-attachments/assets/acd80c2e-73fd-49a9-a99f-90de62e83d1b" />
+![paper](https://github.com/user-attachments/assets/ab53ca7e-dd33-4e53-9c36-f62fb3b12463)
+<img width="99" height="56" alt="summer" src="https://github.com/user-attachments/assets/d1ff9f18-39ab-4204-9cc6-5e6839c4b8fc" />
+<img width="99" height="56" alt="fruits" src="https://github.com/user-attachments/assets/bd2b57c4-363b-4838-9b20-25840db66f66" />
+![rad](https://github.com/user-attachments/assets/f6548990-1470-4586-bfaf-38b0401a4ae6)
+<img width="99" height="57" alt="4ac2677c" src="https://github.com/user-attachments/assets/9db291a5-ee3b-4aaa-90c2-8aa624098dc1" />
+<img width="99" height="57" alt="04849b57" src="https://github.com/user-attachments/assets/84748478-8073-4044-8552-95f2e2827a9a" />
+<img width="99" height="56" alt="4f2d83aa" src="https://github.com/user-attachments/assets/268a06b8-8d1a-4380-bdce-a6cc41c24ce0" />
+<img width="100" height="52" alt="b23bc936" src="https://github.com/user-attachments/assets/5baed2db-a3d5-48af-b744-49cf2342933c" />
+<img width="99" height="56" alt="rainbow" src="https://github.com/user-attachments/assets/e6d8146e-2c16-46d8-b054-ebe8a177c801" />
+<img width="98" height="63" alt="b17f4b5a" src="https://github.com/user-attachments/assets/8737d120-13d4-44fc-b2be-e0b0ed3be92c" />
+![7251bdf4](https://github.com/user-attachments/assets/da15f65c-ecc4-4cb2-a2fa-871a4b839faa)
+<img width="98" height="63" alt="6add2756" src="https://github.com/user-attachments/assets/d3eb9600-513d-4440-b707-76857cd83084" />
+![61892cfe](https://github.com/user-attachments/assets/cf76d062-c970-4f9d-92a1-bd6cb850f9e5)
+<img width="99" height="56" alt="cat2" src="https://github.com/user-attachments/assets/ce468ff2-cb49-4092-a2e2-f8e03fe8b744" />
+![livedinminecraft](https://github.com/user-attachments/assets/ee71a693-62f9-414e-bebf-9914dc2c1ace)
+![c08c255d](https://github.com/user-attachments/assets/13f02982-89fa-4308-ba09-91cb5825dc41)
+![2623f373](https://github.com/user-attachments/assets/85fffae5-58d1-46e8-9797-862ff0332a78)
+![studying](https://github.com/user-attachments/assets/95904220-6efd-42dc-a652-73699e01bbfc)
+![trilobiteme](https://github.com/user-attachments/assets/9f515e0b-4192-4e45-b7e9-ef230125e0f3)
+<img width="99" height="56" alt="minecraftfeast" src="https://github.com/user-attachments/assets/5631f9a2-4a8d-469e-8289-fca4f0af9daa" />
+![files](https://github.com/user-attachments/assets/cd052701-7e99-4e1a-a83d-6480668b4675)
+![76726043](https://github.com/user-attachments/assets/d4b58d40-a2ff-4831-8413-f98aafb8faef)
+![fcd3a1b8](https://github.com/user-attachments/assets/e6575f48-60ac-4af2-bb08-377d371b1e91)
+<img width="99" height="56" alt="28084dca" src="https://github.com/user-attachments/assets/70e7019d-69ae-40cd-94b7-a3c35b2dd2b9" />
+![nononono](https://github.com/user-attachments/assets/b241ddaa-38ab-4ec2-a94c-eb9a5cc34142)
+![tumblr_inline_pe6lo808OS1v11djx_1280](https://github.com/user-attachments/assets/daea30d1-8c92-4cc2-bcd1-eee7f1f3f31c)
+<img width="99" height="56" alt="pretty_good_at_bad_decisions_stamp_by_ceiestials-d9qwvu6" src="https://github.com/user-attachments/assets/76f922b6-d4f7-436c-9331-39c629cc862a" />
+![tumblr_b0e697028d1d4a235d4f60e6ac8f224e_1509e181_100](https://github.com/user-attachments/assets/e5e5b474-7577-4ce6-a96b-e12e1b242eab)
+![d55](https://github.com/user-attachments/assets/3d22c867-8f5f-45b7-bfd4-fa2e11b820ad)
+<img width="99" height="56" alt="tumblr_inline_owuh67nwtH1u5rvwj_500" src="https://github.com/user-attachments/assets/3adf1e49-2d39-4566-8715-826cf4236808" />
+<img width="99" height="56" alt="27c07b109fd58461" src="https://github.com/user-attachments/assets/9e7ac9c9-54a7-407f-8a36-80c17fe12014" />
+![tumblr_8a33aa54bbd73ffa9e9832f71b91bc5a_94a3a758_100](https://github.com/user-attachments/assets/0cf4b09a-f56e-4d19-9841-e5084b78bafc)
+<img width="99" height="56" alt="tumblr_061d2de9e4a2a787fe95163298884e2e_f7529905_100" src="https://github.com/user-attachments/assets/331333d2-32fb-4475-95bc-a8de8c2d0f99" />
+<img width="99" height="56" alt="tumblr_ecc7a24943bb3b6c40345229f201da62_e75ae400_100" src="https://github.com/user-attachments/assets/ad6d8f46-e8a4-4bfd-80d5-5156445eb4e4" />
+![cfbca487](https://github.com/user-attachments/assets/3d04e0dd-a450-488e-8830-07864b49cb8a)
+![d2nocg4-6e1b2c65-661c-4b2d-93e9-5993c6e16244](https://github.com/user-attachments/assets/89cea58b-72c9-4fd7-af29-90d6aeff3e39)
+
+
+
+
+</details>
+
 
