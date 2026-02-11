@@ -19,6 +19,7 @@ ps, the badge above is ACTIVELY DECREASING!
 
 ![pony-town-stupid elk --boop-sit-blinking-padded-toy362-4x (2)](https://github.com/user-attachments/assets/b8e9837d-8f50-4ac6-8410-700322c9fa62)
 
+$$\color{orange}{⚠️}$$
 $$\color{orange}{ \ | \ notice! \ [][][] \ i \ have \ seen \ someone \ on \ pt \ who \ quite \ literally \ STOLE \ MY \ WHOLE}$$
 $$\color{orange}{ELK \ PONY. \ even \ the \ name \ for \ some \ odd \ reason?? \ like \ they \ copied \ and \ pasted \ it.}$$
 $$\color{orange}{so \ if \ you \ see \ 'me' \ WITHOUT \ my \ github \ page \ on \ my \ profile \ then., \ yeah.}$$
