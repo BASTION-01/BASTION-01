@@ -1,7 +1,7 @@
 ## ' ✶ will this end in tragedy? well i dont know but  guess we'll see! ✶ '
 ------------------------------------------------------------------
 
-![Custom Badge](https://img.shields.io/badge/youtube_cake_hound_subscribers-63.2K-green)
+![Custom Badge](https://img.shields.io/badge/youtube_cake_hound_subscribers-63.2K-darkgreen)
 
 ps, the badge above is ACTIVELY DECREASING!
 
@@ -20,9 +20,9 @@ ps, the badge above is ACTIVELY DECREASING!
 ![pony-town-stupid elk --boop-sit-blinking-padded-toy362-4x (2)](https://github.com/user-attachments/assets/b8e9837d-8f50-4ac6-8410-700322c9fa62)
 
 $$\color{orange}{⚠️}$$
-$$\color{orange}{ \ | \ notice! \ [][][] \ i \ have \ seen \ someone \ on \ pt \ who \ quite \ literally \ STOLE \ MY \ WHOLE}$$
-$$\color{orange}{ELK \ PONY. \ even \ the \ name \ for \ some \ odd \ reason?? \ like \ they \ copied \ and \ pasted \ it.}$$
-$$\color{orange}{so \ if \ you \ see \ 'me' \ WITHOUT \ my \ github \ page \ on \ my \ profile \ then., \ yeah.}$$
+$$\color{darkgreen}{ \ | \ notice! \ [][][] \ i \ have \ seen \ someone \ on \ pt \ who \ quite \ literally \ STOLE \ MY \ WHOLE}$$
+$$\color{darkgreen}{ELK \ PONY. \ even \ the \ name \ for \ some \ odd \ reason?? \ like \ they \ copied \ and \ pasted \ it.}$$
+$$\color{darkgreen}{so \ if \ you \ see \ 'me' \ WITHOUT \ my \ github \ page \ on \ my \ profile \ then., \ yeah.}$$
 
 
 $$\color{gray}{' \ ✦ \ - \ im \ azurark! \ you \ can \ call \ me \ ark \ or \ tnt \ if \ easier, \ i \ often \ get \ my \ name \ spelt \ wrong..}$$
