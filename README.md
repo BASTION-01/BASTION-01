@@ -3,7 +3,7 @@
 
 ![Custom Badge](https://img.shields.io/badge/youtube_cake_hound_subscribers-63.2K-darkgreen)
 
-ps, the badge above is ACTIVELY DECREASING!
+scroll to the bottom of my readme to find a stamp library
 
 ![centaurworld-animation](https://github.com/user-attachments/assets/34e023df-2021-4fdc-a3c8-b13d433d6c72)
 
