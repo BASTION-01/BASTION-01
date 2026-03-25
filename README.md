@@ -88,7 +88,6 @@ $$\color{gray}{' \ ✦ \ - \ healing \ proshippers}$$
 
 <img src="https://github.com/user-attachments/assets/18d8b524-433e-446f-981d-0b146085163d" width="1100">
 
-$$\color{darkgreen}{ ✦ \ ° \ HARK! \ THE \ HERALD \ ANGELS \ SING! \ °  \ ✦}$$
 
 <details>
   <summary>stamp library</summary>
