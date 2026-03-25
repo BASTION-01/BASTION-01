@@ -2,7 +2,7 @@
 ------------------------------------------------------------------
 i'm getting more and more inactive on pt so if you see me then,. i dunno say hi or something
 
-![Custom Badge](https://img.shields.io/badge/youtube_cake_hound_subscribers-63.2K-darkgreen)
+![Custom Badge](https://img.shields.io/badge/youtube_minotaur_subscribers-63K-darkgreen)
 
 
 ![centaurworld-animation](https://github.com/user-attachments/assets/34e023df-2021-4fdc-a3c8-b13d433d6c72)
