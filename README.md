@@ -32,7 +32,8 @@ $$\color{gray}{' \ ✦ \ - \ active \ mostly \ on \ weekends. \ on \ weekdays, \
 $$\color{gray}{' \ ✦ \ - \ W2I \ always! \ if \ i \ dont \ respond \ then \ im \ either \ offtab, \ busy \ or \ not \ not \ paying \ so \ much \ attention..}$$
 $$\color{gray}{' \ ✦ \ - \ i \ commonly \ hang \ out \ at \ docks \ or \ near \ docks \ in \ the \ safe \ server \ (dockling)}$$
 $$\color{gray}{' \ ✦ \ - \ i \ have \ a \ liking \ for \ roleplays, \ so \ expect \ me \ to \ be \ in \ infections, \ labs, \ the \ bunch.}$$
-$$\color{gray}{' \ ✦ \ - \ i \ am \ currently \ interested \ in \ centaurworld \ and \ the \ folk \ of \ the \ air.}$$
+$$\color{gray}{' \ ✦ \ - \ i \ am \ currently \ interested \ in \ neon \ genesis \ evangelion \ and \ the \ folk \ of \ the \ air.}$$
+$$\color{gray}{i \ am \ also \ currently \ doing \ the \ carnegie \ so \ i \ might \ be \ reading \ online. \ w2i \ recommended}$$
 $$\color{gray}{' \ ✦ \ - \ i \ edit \ my \ repository \ often \ so \ expect \ small \ changes \ or \ even \ a \ complete \ makeover \ of \ my \ page}$$
 $$\color{gray}{' \ ✦ \ - \ relatively \ dormant \ on \ wotw, \ dod, \ crk \ and \ shin \ godzilla}$$
 $$\color{gray}{' \ ✦ \ - \ i \ have \ a \ VERY \ HEAVY \ touch \ comfort, \ so \ im \ open \ to \ cuddles !}$$
@@ -77,7 +78,7 @@ $$\color{gray}{' \ ✦ \ - \ tcooal.}$$
 $$\color{gray}{' \ ✦ \ - \ warrior cats.}$$
 $$\color{gray}{' \ ✦ \ - \ beastars??}$$
 $$\color{gray}{' \ ✦ \ - \ fnaf}$$
-$$\color{gray}{' \ ✦ \ - \ beserk.}$$
+$$\color{gray}{' \ ✦ \ - \ berserk.}$$
 $$\color{gray}{' \ ✦ \ - \ tpot, \ bfdi, \ that \ stuff.}$$
 $$\color{darkgray}{( \ just \ dont \ talk \ about \ these \ fandoms \ infront \ of \ me \ and \ youll \ be \ fine \ i \ promise.)}$$
 $$\color{darkgray}{ - \ [][][][][][][][][][][][][][][] \ -}$$
