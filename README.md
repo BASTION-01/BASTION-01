@@ -90,6 +90,10 @@ $$\color{gray}{' \ ✦ \ - \ healing \ proshippers}$$
 <img src="https://github.com/user-attachments/assets/18d8b524-433e-446f-981d-0b146085163d" width="1100">
 
 
+<img src="https://github.com/user-attachments/assets/676b0bfd-265f-4e8b-849d-ae4fa387d4f3" width="100">
+
+
+
 <details>
   <summary>stamp library</summary>
   
