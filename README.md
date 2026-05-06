@@ -1,4 +1,4 @@
-## ' ✶ will this end in tragedy? well i dont know but  guess we'll see! ✶ '
+## ' ✶ as long as the sun, the moon, and the earth exist, everything will be alright. ✶ '
 ------------------------------------------------------------------
 i'm getting more and more inactive on pt so if you see me then,. i dunno say hi or something
 
