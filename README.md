@@ -2,7 +2,7 @@
 ------------------------------------------------------------------
 i'm getting more and more inactive on pt so if you see me then,. i dunno say hi or something
 
-![Custom Badge](https://img.shields.io/badge/youtube_eva.unit_subscribers-63K-darkgreen)
+![Custom Badge](https://img.shields.io/badge/youtube_eva.unit_subscribers-63K-red)
 
 
 <img width="498" height="373" alt="neon-genesis-evangelion-power" src="https://github.com/user-attachments/assets/3a6513b4-d9ff-4866-b94f-f93cab86a64c" />
