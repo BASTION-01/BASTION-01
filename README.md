@@ -61,7 +61,7 @@ $$\color{gray}{' \ ✦ \ - \ dni \ if you \ talk \ SO \ EXCESSIVELY \ MUCH \ abo
 $$\color{gray}{' \ ✦ \ - \ dni \ if \ youve \ got \ a \ short \ temper, \ sorry.,}$$
 $$\color{gray}{' \ ✦ \ - \ dni \ if \ you \ talk \ about \ tsb, \ slap \ battles \ or \ bloxfruits.. \ PleASe}$$
 $$\color{gray}{' \ ✦ \ - \ dni \ respectively \ if \ you \ start \ drama \ because \ i \ want \ NONE \ OF \ IT. \ ok?., \ ...\}$$
-$$\color{gray}{' \ ✦ \ - \ dont \ fucking \ touch \ me \ if \ you \ like \ fluffy \ pony \ abuse.}$$
+$$\color{gray}{' \ ✦ \ - \ fuck \ off \ reform \ voters.}$$
 
 <img src="https://github.com/user-attachments/assets/18d8b524-433e-446f-981d-0b146085163d" width="1100">
 
@@ -82,7 +82,7 @@ $$\color{darkgray}{ - \ [][][][][][][][][][][][][][][] \ -}$$
 $$\color{gray}{' \ ✦ \ - \ iwvec \ if \ you \ find \ digital \ humour \ funny..}$$
 $$\color{gray}{' \ ✦ \ - \ people \ who \ like \ terrible \ mouse \ or \ all \ of \ those \ horrifying \ gory \ animal \ animations..}$$
 $$\color{gray}{' \ ✦ \ - \ raid \ joiners}$$
-$$\color{gray}{' \ ✦ \ - \ healing \ proshippers}$$
+
 
 <img src="https://github.com/user-attachments/assets/18d8b524-433e-446f-981d-0b146085163d" width="1100">
 
