@@ -18,7 +18,8 @@ i'm getting more and more inactive on pt so if you see me then,. i dunno say hi 
 <img width="498" height="31" alt="image" src="https://github.com/user-attachments/assets/2dfef72a-506c-4c04-b8c7-ee9319a6787f" />
 
 
-![pony-town-stupid elk --boop-sit-blinking-padded-toy362-4x (2)](https://github.com/user-attachments/assets/b8e9837d-8f50-4ac6-8410-700322c9fa62)
+<img width="200" height="220" alt="pony-town-damascus-boop-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/d0ebb11c-b9ee-416b-bba7-e56cfb959c15" />
+
 
 
 
