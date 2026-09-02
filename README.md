@@ -11,8 +11,8 @@ i'm getting more and more inactive on pt so if you see me then,. i dunno say hi 
 
 *PREVIOUSLYY.. ' ilovepizzaandcola ' !!*
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/d8c9535d-7f6c-470a-8c58-ccbe675e1ad4" />
-)
+<img width="500" height="500" alt="picmix com_14000037" src="https://github.com/user-attachments/assets/d569b904-fc1d-43c8-9908-dc427fbb1588" />
+
 
 
 <img src="https://github.com/user-attachments/assets/18d8b524-433e-446f-981d-0b146085163d" width="1100">
