@@ -15,7 +15,7 @@ i'm getting more and more inactive on pt so if you see me then,. i dunno say hi 
 
 
 
-<img width="498" height="31" alt="image" src="https://github.com/user-attachments/assets/2dfef72a-506c-4c04-b8c7-ee9319a6787f" />
+<img width="900" height="20" alt="image" src="https://github.com/user-attachments/assets/2dfef72a-506c-4c04-b8c7-ee9319a6787f" />
 
 
 <img width="200" height="220" alt="pony-town-damascus-boop-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/d0ebb11c-b9ee-416b-bba7-e56cfb959c15" />
@@ -23,72 +23,30 @@ i'm getting more and more inactive on pt so if you see me then,. i dunno say hi 
 
 
 
-$$\color{gray}{' \ ✦ \ - \ im \ azurark! \ you \ can \ call \ me \ ark \ or \ tnt \ if \ easier, \ i \ often \ get \ my \ name \ spelt \ wrong..}$$
-$$\color{gray}{' \ ✦ \ - \ my \ \ prefered \ pronouns \ are \ they \ them \ but \ use \ male \ pronouns \ if \ you \ want}$$
-$$\color{gray}{' \ ✦ \ - \ i \ am \ a \ minor. \ do \ not \ interact \ if \ you \ are \ not \ in \ my \ age \ group \ [ \ as \ specified \ in \ the \ dni \ list \ ]}$$
-$$\color{gray}{' \ ✦ \ - \ active \ mostly \ on \ weekends. \ on \ weekdays, \ i \ may \ be \ on \ 5pm \ through \ 9pm.\}$$
-$$\color{gray}{' \ ✦ \ - \ W2I \ always! \ if \ i \ dont \ respond \ then \ im \ either \ offtab, \ busy \ or \ not \ not \ paying \ so \ much \ attention..}$$
-$$\color{gray}{' \ ✦ \ - \ i \ commonly \ hang \ out \ at \ docks \ or \ near \ docks \ in \ the \ safe \ server \ (dockling)}$$
-$$\color{gray}{' \ ✦ \ - \ i \ have \ a \ liking \ for \ roleplays, \ so \ expect \ me \ to \ be \ in \ infections, \ labs, \ the \ bunch.}$$
-$$\color{gray}{' \ ✦ \ - \ i \ am \ currently \ interested \ in \ neon \ genesis \ evangelion \ , \ normalsville \ and \ the \ folk \ of \ the \ air.}$$
-$$\color{gray}{i \ am \ also \ currently \ doing \ the \ carnegie \ so \ i \ might \ be \ reading \ online. \ w2i \ recommended}$$
-$$\color{gray}{' \ ✦ \ - \ i \ edit \ my \ repository \ often \ so \ expect \ small \ changes \ or \ even \ a \ complete \ makeover \ of \ my \ page}$$
-$$\color{gray}{' \ ✦ \ - \ relatively \ dormant \ on \ wotw, \ dod, \ crk \ and \ shin \ godzilla}$$
-$$\color{gray}{' \ ✦ \ - \ i \ have \ a \ VERY \ HEAVY \ touch \ comfort, \ so \ im \ open \ to \ cuddles !}$$
-$$\color{gray}{' \ ✦ \ - \ i \ like \ to \ convey \ current \ emotions \ by \ changing \ my \ pony's \ expression}$$
-$$\color{gray}{' \ ✦ \ - \ i \ tend \ to \ forget \ people \ i \ have \ friended \ often, \ so \ pleasee \ remind \ me \ who \ you \ are.. \ :c}$$
-$$\color{gray}{' \ ✦ \ - \ please \ DONT \ cover \ me, \ it \ isnt \ like \ i \ have \ a \ trigger \ or \ discomfort,}$$
-$$\color{gray}{i \ just,. \ REALLY \ LIKE \ looking \ at \ myself \ and \ my \ pony}$$
-$$\color{gray}{' \ ✦ \ - \ please \ do \ note \ that \ i \ am \ not \ a \ fictionkin \ of \ schwarzwalder, \ hes \ just \ my \ favourite \ character.}$$
-$$\color{gray}{' \ ✦ \ - \ ( \ im \ not \ a \ fictkin \ of \ the \ nowhere \ king \ either \ ! \ )}$$
-$$\color{gray}{' \ ✦ \ - \ i \ do \ NOT \ tolerate \ criticism \ or \ discrimination \ of \ my \ ponies \ IN \ ANY \ WAY.}$$
-$$\color{gray}{use \ tonetags \ if \ joking, \ please.,. \ (WOULD \ STILL \ PREFER \ YOU \ DONT \ JOKE \ AROUND.)}$$
-$$\color{gray}{' \ ✦ \ - \ ASK \ FOR \ INSPIRATION \ if \ willing \ to \ 'borrow' \ details \ from \ my \ ocs. \ dont \ steal., \ be \ decent.}$$
+$$\color{darkred}{' \ ✦ \ - \ im \ azurark! \ you \ can \ call \ me \ ark \ or \ tnt \ if \ easier, \ i \ often \ get \ my \ name \ spelt \ wrong..}$$
+$$\color{darkred}{' \ ✦ \ - \ my \ \ prefered \ pronouns \ are \ they \ them \ but \ use \ male \ pronouns \ if \ you \ want}$$
+$$\color{darkred}{' \ ✦ \ - \ i \ am \ a \ minor. \ do \ not \ interact \ if \ you \ are \ not \ in \ my \ age \ group \ [ \ as \ specified \ in \ the \ dni \ list \ ]}$$
+$$\color{darkred}{' \ ✦ \ - \ active \ mostly \ on \ weekends. \ on \ weekdays, \ i \ may \ be \ on \ 5pm \ through \ 9pm.\}$$
+$$\color{darkred}{' \ ✦ \ - \ W2I \ always! \ if \ i \ dont \ respond \ then \ im \ either \ offtab, \ busy \ or \ not \ not \ paying \ so \ much \ attention..}$$
+$$\color{darkred}{' \ ✦ \ - \ i \ commonly \ hang \ out \ at \ docks \ or \ near \ docks \ in \ the \ safe \ server \ (dockling)}$$
+$$\color{darkred}{' \ ✦ \ - \ i \ have \ a \ liking \ for \ roleplays, \ so \ expect \ me \ to \ be \ in \ infections, \ labs, \ the \ bunch.}$$
 
 
-<img src="https://github.com/user-attachments/assets/18d8b524-433e-446f-981d-0b146085163d" width="1100">
-
+<img width="900" height="20" alt="image" src="https://github.com/user-attachments/assets/2dfef72a-506c-4c04-b8c7-ee9319a6787f" />
 
 
 
 $$\color{darkgray}{' \ [] \ [] \ DNI \ [] \ [] \ ' }$$
 
 
-$$\color{gray}{' \ ✦ \ - \ strictly \ dni \ if \ you \ are \ 12 \ and \ under \ OR  \ 18 \ and \ over.}$$
-$$\color{gray}{' \ ✦ \ - \ DNI \ if \ you \ are \ either \ or \ BOTH: \ a \ proshipper \ and/or \ darkshipper. \ i \ block \ EVERYONE \ under \ the \ protree.}$$
-$$\color{gray}{' \ ✦ \ - \ DNI \ DNI \ IF \ YOU \ ARE \ A \ HOMOPHOBE, \ TRANSPHOBE, \ ABLEIST, \ NEO-NAZI, \ RACIST, \ ZOO \ OR \ MAP.}$$
-$$\color{gray}{' \ ✦ \ - \ dni \ if \ you \ are \ a \ trump \ supporter/justifier \ ... \ ., \ need \ i \ say \ more?}$$
-$$\color{gray}{' \ ✦ \ - \ dni \ if you \ talk \ SO \ EXCESSIVELY \ MUCH \ about \ your \ personal \ life. \ dont \ flex \ either, \ fuck \ you}$$
-$$\color{gray}{' \ ✦ \ - \ dni \ if \ youve \ got \ a \ short \ temper, \ sorry.,}$$
-$$\color{gray}{' \ ✦ \ - \ dni \ if \ you \ talk \ about \ tsb, \ slap \ battles \ or \ bloxfruits.. \ PleASe}$$
-$$\color{gray}{' \ ✦ \ - \ dni \ respectively \ if \ you \ start \ drama \ because \ i \ want \ NONE \ OF \ IT. \ ok?., \ ...\}$$
-$$\color{gray}{' \ ✦ \ - \ fuck \ off \ reform \ voters.}$$
+$$\color{darkred}{' \ ✦ \ - \ strictly \ dni \ if \ you \ are \ 12 \ and \ under \ OR  \ 18 \ and \ over.}$$
+$$\color{darkred}{' \ ✦ \ - \ DNI \ if \ you \ are \ either \ or \ BOTH: \ a \ proshipper \ and/or \ darkshipper. \ i \ block \ EVERYONE \ under \ the \ protree.}$$
+$$\color{darkred}{' \ ✦ \ - \ just \ be \ decent \ idk.}$$
 
-<img src="https://github.com/user-attachments/assets/18d8b524-433e-446f-981d-0b146085163d" width="1100">
+<img width="900" height="20" alt="image" src="https://github.com/user-attachments/assets/2dfef72a-506c-4c04-b8c7-ee9319a6787f" />
 
 
-$$\color{darkgray}{' \ [] \ [] \ INTERACT \ WITH \ VERY \ EXTREME \ CAUTION \ [] \ [] \ '}$$
-$$\color{darkgray}{' \ [] \ - \ interact \ with \ VERY \ EXTREME \ CAUTION \ if \ you're \ in \ THESE  \ fandoms \ !!., \ - \ [] \ '}$$
-$$\color{darkgray}{: \ = \ ' \ (this \ iwvec \ fandom \ list \ does \ not \ apply \ if \ you \ are \ a \ friend!) \ ' \ = \ :}$$
-$$\color{gray}{' \ ✦ \ - \ hazbin \ hotel \ OR  \ helluva \ boss \ .,,}$$
-$$\color{gray}{' \ ✦ \ - \ sprunki.}$$
-$$\color{gray}{' \ ✦ \ - \ tcooal.}$$
-$$\color{gray}{' \ ✦ \ - \ warrior cats.}$$
-$$\color{gray}{' \ ✦ \ - \ beastars??}$$
-$$\color{gray}{' \ ✦ \ - \ fnaf}$$
-$$\color{gray}{' \ ✦ \ - \ berserk.}$$
-$$\color{gray}{' \ ✦ \ - \ tpot, \ bfdi, \ that \ stuff.}$$
-$$\color{darkgray}{( \ just \ dont \ talk \ about \ these \ fandoms \ infront \ of \ me \ and \ youll \ be \ fine \ i \ promise.)}$$
-$$\color{darkgray}{ - \ [][][][][][][][][][][][][][][] \ -}$$
-$$\color{gray}{' \ ✦ \ - \ iwvec \ if \ you \ find \ digital \ humour \ funny..}$$
-$$\color{gray}{' \ ✦ \ - \ people \ who \ like \ terrible \ mouse \ or \ all \ of \ those \ horrifying \ gory \ animal \ animations..}$$
-$$\color{gray}{' \ ✦ \ - \ raid \ joiners}$$
 
-
-<img src="https://github.com/user-attachments/assets/18d8b524-433e-446f-981d-0b146085163d" width="1100">
-
-
-<img src="https://github.com/user-attachments/assets/676b0bfd-265f-4e8b-849d-ae4fa387d4f3" width="100">
 
 
 
@@ -102,10 +60,10 @@ $$\color{gray}{' \ ✦ \ - \ raid \ joiners}$$
 ![soda](https://github.com/user-attachments/assets/5c043955-9f9c-468e-a2a8-88dd03badc54)
 ![chocolate](https://github.com/user-attachments/assets/89963817-f935-4725-9b41-7ac6015a61fb)
 <img width="99" height="56" alt="flytrap" src="https://github.com/user-attachments/assets/abc43718-967f-4139-8ffb-f798b772ad36" />
-![noise](https://github.com/user-attachments/assets/d1e3f32e-9584-4d4c-ae82-fd24a398437e)
-![glitter](https://github.com/user-attachments/assets/ef744878-cbff-417b-8433-f42f732949ca)
+![noise](https://github.com/user-attachments/assets/d1e3f32e-9584-4d4c-ae82-fd24a398437e)49ca)
 <img width="99" height="56" alt="meta11" src="https://github.com/user-attachments/assets/68cb9c33-2375-4977-88b7-73d16f29bc06" />
 <img width="103" height="59" alt="dickhead" src="https://github.com/user-attachments/assets/30be4179-bcd1-4278-9a3f-59bc0b41782a" />
+![glitter](https://github.com/user-attachments/assets/ef744878-cbff-417b-8433-f42f7329)
 ![barbedwire](https://github.com/user-attachments/assets/48c7ac3c-e268-411f-a461-9bb6d476e894)
 <img width="99" height="55" alt="believe" src="https://github.com/user-attachments/assets/acd80c2e-73fd-49a9-a99f-90de62e83d1b" />
 ![paper](https://github.com/user-attachments/assets/ab53ca7e-dd33-4e53-9c36-f62fb3b12463)
