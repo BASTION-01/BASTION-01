@@ -1,6 +1,6 @@
-## ' ✶ as long as the sun, the moon, and the earth exist, everything will be alright. ✶ '
+## ' ✶ we are SO back. ✶ '
 ------------------------------------------------------------------
-i'm getting more and more inactive on pt so if you see me then,. i dunno say hi or something
+since fall's coming and i'm getting cozy in my renovated room, i figured i'd spend some time on PT. starting with.. a WHOLE MAKEOVER of my gh page! ehh? 
 
 ![Custom Badge](https://img.shields.io/badge/youtube_eva.unit_subscribers-63K-darkred)
 
