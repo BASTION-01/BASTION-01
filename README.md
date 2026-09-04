@@ -23,13 +23,13 @@ since fall's coming and i'm getting cozy in my renovated room, i figured i'd spe
 
 
 
-$$\color{darkred}{' \ ✦ \ - \ im \ azurark! \ you \ can \ call \ me \ ark \ or \ tnt \ if \ easier, \ i \ often \ get \ my \ name \ spelt \ wrong..}$$
+$$\color{orange}{' \ ✦ \ - \ im \ azurark! \ you \ can \ call \ me \ ark \ or \ tnt \ if \ easier, \ i \ often \ get \ my \ name \ spelt \ wrong..}$$
 $$\color{darkred}{' \ ✦ \ - \ my \ \ prefered \ pronouns \ are \ they \ them \ but \ use \ male \ pronouns \ if \ you \ want}$$
-$$\color{darkred}{' \ ✦ \ - \ i \ am \ a \ minor. \ do \ not \ interact \ if \ you \ are \ not \ in \ my \ age \ group \ [ \ as \ specified \ in \ the \ dni \ list \ ]}$$
+$$\color{orange}{' \ ✦ \ - \ i \ am \ a \ minor. \ do \ not \ interact \ if \ you \ are \ not \ in \ my \ age \ group \ [ \ as \ specified \ in \ the \ dni \ list \ ]}$$
 $$\color{darkred}{' \ ✦ \ - \ active \ mostly \ on \ weekends. \ on \ weekdays, \ i \ may \ be \ on \ 5pm \ through \ 9pm.\}$$
-$$\color{darkred}{' \ ✦ \ - \ W2I \ always! \ if \ i \ dont \ respond \ then \ im \ either \ offtab, \ busy \ or \ not \ not \ paying \ so \ much \ attention..}$$
+$$\color{orange}{' \ ✦ \ - \ W2I \ always! \ if \ i \ dont \ respond \ then \ im \ either \ offtab, \ busy \ or \ not \ not \ paying \ so \ much \ attention..}$$
 $$\color{darkred}{' \ ✦ \ - \ i \ commonly \ hang \ out \ at \ docks \ or \ near \ docks \ in \ the \ safe \ server \ (dockling)}$$
-$$\color{darkred}{' \ ✦ \ - \ i \ have \ a \ liking \ for \ roleplays, \ so \ expect \ me \ to \ be \ in \ infections, \ labs, \ the \ bunch.}$$
+$$\color{orange}{' \ ✦ \ - \ i \ have \ a \ liking \ for \ roleplays, \ so \ expect \ me \ to \ be \ in \ infections, \ labs, \ the \ bunch.}$$
 
 
 <img width="900" height="20" alt="image" src="https://github.com/user-attachments/assets/2dfef72a-506c-4c04-b8c7-ee9319a6787f" />
@@ -39,9 +39,9 @@ $$\color{darkred}{' \ ✦ \ - \ i \ have \ a \ liking \ for \ roleplays, \ so \ 
 $$\color{darkgray}{' \ [] \ [] \ DNI \ [] \ [] \ ' }$$
 
 
-$$\color{darkred}{' \ ✦ \ - \ strictly \ dni \ if \ you \ are \ 12 \ and \ under \ OR  \ 18 \ and \ over.}$$
+$$\color{orange}{' \ ✦ \ - \ strictly \ dni \ if \ you \ are \ 12 \ and \ under \ OR  \ 18 \ and \ over.}$$
 $$\color{darkred}{' \ ✦ \ - \ DNI \ if \ you \ are \ either \ or \ BOTH: \ a \ proshipper \ and/or \ darkshipper. \ i \ block \ EVERYONE \ under \ the \ protree.}$$
-$$\color{darkred}{' \ ✦ \ - \ just \ be \ decent \ idk.}$$
+$$\color{orange}{' \ ✦ \ - \ just \ be \ decent \ idk.}$$
 
 <img width="900" height="20" alt="image" src="https://github.com/user-attachments/assets/2dfef72a-506c-4c04-b8c7-ee9319a6787f" />
 
